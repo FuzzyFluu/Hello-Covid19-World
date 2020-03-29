@@ -1,2 +1,2 @@
 # Hello-Covid19-World
-Regular Hello World while Covid19 is active
+There Are a lot of straydogs in Southamerica and US-americans should not call them selfes americans!
